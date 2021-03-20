@@ -1,0 +1,1 @@
+it is an Italian dish.Modern pizza was invented in Naples,and the dish and its variants have since become popular in many countries.
